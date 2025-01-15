@@ -1,4 +1,4 @@
-- 👋 Hi, I’m waitwhat653! (I really wnat my name to be waitwhat)
+- 👋 Hi, I’m waitwhat653! (I really want my name to be waitwhat)
 - 👀 I’m interested in coding, programing, and reading (a lot).
 - 🌱 I’m currently learning all sorts of things!
 - 💞️ I’m looking to collaborate on nothing...yet!
